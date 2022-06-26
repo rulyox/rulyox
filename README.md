@@ -1,6 +1,6 @@
-## 👨‍💻 Maker, Designer, Architect
+## 👨‍💻 Inventive Maker
 
-I like logical, creative thinking and making stuff. <br>
+I like to make stuff with logical and creative thinking. <br>
 I am interested in programming and drawing.
 
 ## Links
